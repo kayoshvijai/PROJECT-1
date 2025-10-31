@@ -1,3 +1,0 @@
-# VIJAI
-PROJECT
-
